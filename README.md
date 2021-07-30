@@ -15,4 +15,4 @@ Of course, this is just a small list to get you started. You will have to do you
 
 https://shangyujiang.weebly.com/
 
-twitter.com/jiang_shangyu
+https://twitter.com/jiang_shangyu
